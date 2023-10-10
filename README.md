@@ -1,0 +1,2 @@
+# wiosnalatojesienzimaxd
+strona informatyka
